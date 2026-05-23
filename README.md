@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jacob-wheat-acre
-- 👀 I’m interested in fun little projects
+- 🌌 Having fun, learning
 - 📫 How to reach me: jacob.wheat.acre@gmail.com
 
 <!---
